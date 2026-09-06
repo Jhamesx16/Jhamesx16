@@ -1,5 +1,5 @@
 Olá lindo(a) 👋
-<img src="https://images.hitpaw.com/topics/gif-tips/duck-transparent-gif.gif" width="300">
+<img src="https://media.tenor.com/3AQDvhSiPpMAAAAM/dog-hacker.gif" width="300">
 
 Eu me chamo Jhames, tenho 16 anos e faço informática na EEEP Deputado Roberto Mesquita.
 
